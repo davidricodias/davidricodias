@@ -1,0 +1,3 @@
+- 👋 @davidricodias
+- 🎓 Enrolled in a Double Degree in Computer Science and Business at UC3M
+- 📫 Contact me on davidricodias.dev@gmail.com
